@@ -1,1 +1,1 @@
-# Types-of-Functions-ETH-AVAX-Assessent
+# Types-of-Functions-ETH-AVAX-Assessment
